@@ -1,0 +1,1 @@
+This is based on the diary of Heinrich von Ortenberg "Diary of a Medic" from 1907.  It is the inside view of a medical officer of the Herero-war that the Germans fought during their colonial period in South-West Africa, today Namibia
